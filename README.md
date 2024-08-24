@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://i.postimg.cc/6QF98By0/kootot.png" data-canonical-src="(https://i.postimg.cc/6QF98By0/kootot.png)" width="500" height="300" />
+<img src="https://i.postimg.cc/6QF98By0/kootot.png" data-canonical-src="(https://i.postimg.cc/6QF98By0/kootot.png)" width="300" height="150" />
 </p>
 
 <p align="center">
