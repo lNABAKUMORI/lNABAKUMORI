@@ -17,7 +17,11 @@ you can call me frei, im 15 yrs old and i like multishipping a whole lot <br/>
 i ♥ yi sang, linton, nelly, catherine, denis, katriel, nosferatu,and ryoshu
 </p>
 
- ***
+<p align="center">
+art by no_710_000 !
+</p>
  
- https://github.com/user-attachments/assets/db2ad3c1-5181-4329-b59f-726324376cb5
+***
+
+https://github.com/user-attachments/assets/db2ad3c1-5181-4329-b59f-726324376cb5
 
